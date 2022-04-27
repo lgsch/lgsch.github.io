@@ -1,1 +1,0 @@
-# lgsch.github.io
